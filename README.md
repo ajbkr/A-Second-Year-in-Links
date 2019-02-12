@@ -105,5 +105,4 @@ second year following my enlightenment or illumination.
 * http://www.shiftingthinking.org/?page_id=449
 * http://www.one-mind-one-energy.com/20-universal-laws.html
 * http://www.clarity-of-being.org/index.htm
-* ...
 * https://www.integrallife.com/integral-post/explaining-anamnesis
